@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Python , C & Java**
 
-- 📫 How to reach me **utkarshrastogi1@acm.org**
+- 📫 How to reach me **utkarshrastogi010@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
